@@ -9,3 +9,4 @@ some airport you should mark
 - [page1](https://fanqiangdang.com/thread-112-1-1.html)
 > [page1墙内打开方案](https://fanqiangdang.com/thread-245-1-1.html)
 
+- [page2](http://backu9.blogspot.com/2018/09/ssssr_18.html)
