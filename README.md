@@ -1,8 +1,7 @@
 # some-airport-you-should-mark(一些你可能会用到的机场)
+**本页面仅供本人学习使用**
 
 随缘收藏一些机场
-
-**本页面仅供本人学习使用**
 
 some airport you should mark
 
